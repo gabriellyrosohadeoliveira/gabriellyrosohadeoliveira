@@ -1,16 +1,11 @@
-## Hi there 👋
+🧠 É muita raiva para pouca idade!
 
-<!--
-**gabriellyrosohadeoliveira/gabriellyrosohadeoliveira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ - 🐺 Aluna Gabrielly R
+ - 💟 to no 9 ano, to indo para o 1 ano
+ - 🥇 Tenho 14 ano logo logo eu vou ter 15
+ - 🎵 Meu gosto favorito é rock
+ - 🐺 Eu amo lobo sou apaxonada
+   
+![](https://media1.tenor.com/m/KgN5t9AETfwAAAAd/mundo-do-torajo-sombrancelha.gif)
+![](https://media1.tenor.com/m/b-vhEP01tOoAAAAC/mundo-torajo-algorithomus.gif)
+![](https://media1.tenor.com/m/bstDnwhCEnAAAAAC/algorithomus-morajo.gif)
